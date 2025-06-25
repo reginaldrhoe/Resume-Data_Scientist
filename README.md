@@ -1,2 +1,2 @@
 # Resume-Data_Scientist
-Public Resume provided for 
+Public Resume provided for Potential Positions 
